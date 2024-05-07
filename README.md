@@ -1,0 +1,2 @@
+# KIDOOGLE_Confidentiality-Policy
+KIDOOGLE_Confidentiality Policy
